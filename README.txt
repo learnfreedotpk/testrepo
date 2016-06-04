@@ -1,1 +1,1 @@
-This has to change completely man
+This has to change completely man kana
